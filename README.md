@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @SubrahmanyaNivarthi
+- 👀 I’m interested in technology, AL, ML, Mechatronics and more..
+- 🌱 I’m currently learning Python and JavaScript.
+- Check out me in Instagram - @subrahmanyanivarthi
+- LinkedIn - @subrahmanyanivarthi
