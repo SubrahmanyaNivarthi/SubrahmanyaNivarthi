@@ -2,4 +2,4 @@
 - 👀 I’m interested in technology, AL, ML, Game Development and more..
 - 🌱 I’m currently learning Python and JavaScript.
 - Check out me in Instagram - @subrahmanyanivarthi
-- LinkedIn - @subrahmanyanivarthi
+- LinkedIn - www.linkedin.com/in/subrahmanyanivarthi
